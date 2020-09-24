@@ -1,0 +1,1 @@
+French fries, or simply fries (North American English), chips (British and Commonwealth English, Hiberno-English), finger chips (Indian English), or French-fried potatoes, are batonnet or allumette-cut deep-fried potatoes. ... Chips can be made from sweet potatoes instead of potatoes.
